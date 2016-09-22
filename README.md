@@ -1,0 +1,2 @@
+# telesandi
+privasi
